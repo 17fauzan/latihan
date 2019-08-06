@@ -1,0 +1,2 @@
+# latihan
+semangat ah
